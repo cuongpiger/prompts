@@ -1,1 +1,1 @@
-- What is sincerity
+What is sincerity
